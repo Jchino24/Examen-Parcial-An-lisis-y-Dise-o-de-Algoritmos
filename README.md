@@ -1,2 +1,0 @@
-# Examen-Parcial
-Examen Parcial 
